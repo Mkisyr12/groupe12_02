@@ -1,1 +1,5 @@
 # groupe12_02
+Groupe 12
+KISELE KAKWENI MANASSE
+L2 GENIE CIVIL 
+groupe12_03
